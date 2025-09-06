@@ -1,4 +1,4 @@
--- this isent the only script i have i have way better ones
+-- this isent the only script i have i have way better ones credits @impatrick on youtube
 
 
 
